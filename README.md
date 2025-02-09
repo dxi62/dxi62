@@ -33,8 +33,6 @@ M.S. in Biotechnology – University of Maryland Global Campus
 Juris Doctor (JD) – UDC Law (Expected May 2027)
 
 🤝 Let's Connect!
-📧 Email: Daniel.Ikem@outlook.com
 🔗 LinkedIn: Daniel Ikem
-🌐 Website: Coming soon!
 
 Feel free to explore my projects and reach out if you're interested in collaborating. I'm always eager to learn, share, and grow within the tech and legal communities!
